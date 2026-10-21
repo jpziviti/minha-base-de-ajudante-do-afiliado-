@@ -1,0 +1,1 @@
+# minha-base-de-ajudante-do-afiliado-
